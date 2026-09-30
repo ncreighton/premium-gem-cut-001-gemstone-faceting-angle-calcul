@@ -1,0 +1,2 @@
+# premium-gem-cut-001-gemstone-faceting-angle-calcul
+Stop guessing and wasting precious gemstone material—get precise faceting angles instantly with our calculator.  Eliminate costly mistakes and tedious manual calculations. This Notion template provides an intuitive, error-proof system to compute exact angles for any gemstone cut, saving you hours and reducing waste.  ## What's Included  - Pre-loade
